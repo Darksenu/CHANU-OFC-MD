@@ -96,7 +96,7 @@ https://github.com/Manu-Ofc-Tech/GitHub-Workflow-Code
 |**[`Manul-Official`](https://github.com/manulofficial7)**|
 
 
-## 👑 `Manu-MD BOT OWNER`👨‍💻 
+## 👑 `𝗖𝗛𝗔𝗡𝗨-𝗠𝗗 BOT OWNER`👨‍💻 
 
 `⚠️ We are not responsible for any inconvenience caused by your mistakes!   | ඔබගේ අත්වැරදීම් නිසා සිදුවන අපහසුතාවයන් සඳහා අප වගකිවයනු නොලැබේ.`
 
